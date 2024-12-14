@@ -1,1 +1,1 @@
-# -Alternative-exam
+# Alternative-exam
